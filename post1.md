@@ -1,4 +1,6 @@
-🚨 Những người chiến thắng lớn nhất của thập kỷ tới có thể không phải là ai sở hữu nhiều token nhất.
+  FB_IMG_1781539784904.jpg
+  
+  🚨 Những người chiến thắng lớn nhất của thập kỷ tới có thể không phải là ai sở hữu nhiều token nhất.
 
 🏗️ Mà là ai xây dựng được hạ tầng để hàng triệu doanh nghiệp tạo ra giá trị trên đó.
 
