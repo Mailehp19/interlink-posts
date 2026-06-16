@@ -1,4 +1,4 @@
-  FB_IMG_1781539784904.jpg
+![](FB_IMG_1781539784904.jpg) 
   
   🚨 Những người chiến thắng lớn nhất của thập kỷ tới có thể không phải là ai sở hữu nhiều token nhất.
 
